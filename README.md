@@ -1,6 +1,6 @@
 ⚠FAÇO ISSO POR HOBBY ENT N ESPERE Q EU TERMINE ISSO⚠
 
-Para me ajudar a manter estes projetos ativos, você pode realizar uma doação via Pix. Minha chave Pix é igorrabenschlag@gmail.com. Ao fazer a transferência, o nome que deve aparecer como recebedor é Igor. Qualquer valor é bem-vindo. Muito obrigado pela sua generosidade!
+Para me motivar a manter estes projetos ativos, você pode realizar uma doação via Pix. Minha chave Pix é igorrabenschlag@gmail.com. Ao fazer a transferência, o nome que deve aparecer como recebedor é Igor. Qualquer valor é bem-vindo. Muito obrigado pela sua generosidade!
 
 *AINDA ESTOU TRABALHANDO NESTE GUIA*
 
